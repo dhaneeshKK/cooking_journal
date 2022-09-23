@@ -1,3 +1,3 @@
 # Dhaneesh's cooking Journal
 
-Lets get Cooking!!!
+Lets get Cooking some awsome food!!!
